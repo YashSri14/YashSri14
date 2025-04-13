@@ -27,9 +27,7 @@
 
 🌱  I'm active for learning more about Artificial Intelligence, Robotics, and Frontend Web Development.
 
-✍️  In my free time, I learn UI UX Designing, Computer Added Designing(Robotics) and Wordpress FreeLancing.
-
-📧  You can contact me at yashgasrv.12@gmail.com . I would try to respond as soon as possible.
+📧  You can contact me at yashsrivastava.official2021@gmail.com . I would try to respond as soon as possible.
 
 
 
